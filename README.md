@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @mynameisfj
+- 摸爬滚打的小垃圾一个
